@@ -93,12 +93,9 @@ Premium Digital Products • Instant Delivery • Competitive Prices
 - **NFA** = Non Full Access
 - Stock is updated regularly.
 
+|\---/|
+| o_o |
+ \_^_/
 
-   |\---/|
-   | ,_, |
-    \_`_/-..----.
- ___/ `   ' ,""+ \  sk
-(__...'   __\    |`.___.';
-  (_,...'(_,.`__)/'.....+
 
 -CCC
