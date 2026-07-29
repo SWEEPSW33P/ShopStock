@@ -1,6 +1,6 @@
 # 🏪 CORPERATIONCAT STORE
 
-Premium Digital Products • Instant Delivery • Competitive Prices
+Premium Digital Products • Kind service • Very low prices
 
 ---
 
