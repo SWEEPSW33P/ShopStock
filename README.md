@@ -26,8 +26,19 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | EA FC 26 *(FA)* | **€9.00** | **2** |
 | CS2 Prime • 0–300 Hours *(FA)* | **€11.00** | **10** |
 | CS2 Prime • 1100–4000 Hours *(FA)* | **€25.00** | **10** |
+| 1k robux | **€11** | **Any** |
 
 ---
+
+
+## Minecraft
+
+| Product | P | Stock |
+|---------|------:|------:|
+| Link to best duping mod (latest version always) | **€1.00** | **infinite** |
+| Link to best hacked client (Universal versions) | **€1.00** | **infinite** |
+---
+
 
 ## Fortnite
 
@@ -74,6 +85,7 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | CyberGhost • 1 Year *(NFA)* | **€0.90** | **522** |
 | IPVanish • 1 Year *(NFA)* | **€1.00** | **98** |
 
+
 ---
 
 ## Methods
@@ -81,9 +93,14 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | Stuff | P | Stock |
 |--------|------:|------:|
 | Darkweb Email Provider | **€10.00** | Infinite |
-| Z.ai Bypass | **€5.00** | Infinite |
+| Z.ai Bypass /jailbreak | **€5.00** | Infinite |
+| Opus 4.8 Premium prompt Bypass/ jailbreak | **€6.00** | Infinite |
+| Grok jailbreak | **€6.00** | Infinite |
 | Private Forum Invite | **€30.00** | Infinite |
-
+| Every game for free and confirmed safe  | **€8** | Infinite |
+| Ip Strss site ( u will have to pay for it) | **€2** | Infinite |
+| NoLog Resident proxy  | **€15.00** | Infinite |
+| WW Za carts site (high quality stealthy and reliable) | **€15.00** | Infinite |
 ---
 
 ## Information
@@ -97,5 +114,5 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | o_o |
  \_^_/
 
-
+dc: AXYrRzeJar
 -CCC
