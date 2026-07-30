@@ -31,7 +31,6 @@ Premium Digital Products • Kind service •  Insanely Low Prices
 
 ---
 
----
 
 ## Methods
 
