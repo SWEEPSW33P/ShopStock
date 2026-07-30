@@ -99,7 +99,7 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | Private Forum Invite | **€30.00** | Infinite |
 | Every game for free and confirmed safe  | **€8** | Infinite |
 | Ip Strss site ( u will have to pay for it) | **€2** | Infinite |
-| NoLog Resident proxy  | **€15.00** | Infinite |
+| NoLog Resident proxy site  | **€5.00** | Infinite |
 | WW Za carts site (high quality stealthy and reliable) | **€15.00** | Infinite |
 ---
 
