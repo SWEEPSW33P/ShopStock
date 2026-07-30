@@ -47,7 +47,7 @@ Premium Digital Products • Kind service •  Insanely Low Prices
 | NoLog Resident proxy site  | **€5.00** | Infinite |
 | WW Za carts site (high quality stealthy and reliable) | **€15.00** | Infinite |
 | Best 1o1 clotching ww shipping site + method ( literally easy mon) | **€25.00** | Infinite |
-| Hidden site with every modern malware and anything related to pentest and cybersec | **18** | 10 |
+| Hidden site with every modern malware and anything related to pentest and cybersec ( always the latest) | **€18** | 10 |
 ---
 
 
