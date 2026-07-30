@@ -1,6 +1,6 @@
 # 🏪 CORPERATIONCAT STORE
 
-Premium Digital Products • Kind service •  Insanely Low Prices
+Everything you could need on the internet and more • Insanely Low Prices •
 
 ---
 
