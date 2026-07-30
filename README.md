@@ -96,11 +96,14 @@ Premium Digital Products • Kind service •  Insainly Low Prices
 | Z.ai Bypass /jailbreak | **€5.00** | Infinite |
 | Opus 4.8 Premium prompt Bypass/ jailbreak | **€6.00** | Infinite |
 | Grok jailbreak | **€6.00** | Infinite |
-| Private Forum Invite | **€30.00** | Infinite |
-| Every game for free and confirmed safe  | **€8** | Infinite |
+| Deepseek8 jailbreak/bypass | **€2** | Infinite |
+| Private Forum Invite | **€30.00** | 3 |
+| EVERY game for free (+ classical games) safe and tested | **€8** | Infinite |
 | Ip Strss site ( u will have to pay for it) | **€2** | Infinite |
 | NoLog Resident proxy site  | **€5.00** | Infinite |
 | WW Za carts site (high quality stealthy and reliable) | **€15.00** | Infinite |
+| Best 1o1 clotching ww shipping site + method ( literally easy mon) | **€25.00** | Infinite |
+| Hidden site with every modern malware and anything related to pentest and cybersec | **18** | 10 |
 ---
 
 ## Information
