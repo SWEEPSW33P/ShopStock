@@ -10,27 +10,10 @@ Everything you could need on the internet and more • Insanely Low Prices •
 |---------|------:|------:|
 | 3 Months Aged • Email & Phone Verified | **€0.20** | **1745** |
 | 2018 Aged Account | **€3.10** | **86** |
-| Discord Nitro Promo Code • 1 Month | **€0.40** | **58** |
+| Discord Nitro Promo Code • 1 Month | **€0.40** | **0** |
+| Discord Nitro Promo Code • 3 Month | **€1.40** | **0** |
 
 ---
-
-
-## Gaming
-
-| Product | P | Stock |
-|---------|------:|------:|
-| Epic Games • 200–350 Games *(NFA)* | **€1.00** | **12** |
-| Epic Games • 350+ Games *(NFA)* | **€2.40** | **8** |
-| GTA V Premium *(FA)* | **€8.00** | **5** |
-| Minecraft *(FA)* | **€6.00** | **17** |
-| DayZ *(FA)* | **€2.00** | **39** |
-| EA FC 26 *(FA)* | **€9.00** | **2** |
-| CS2 Prime • 0–300 Hours *(FA)* | **€11.00** | **10** |
-| CS2 Prime • 1100–4000 Hours *(FA)* | **€25.00** | **10** |
-| 1k robux | **€11** | **Any** |
-
----
-
 
 ## Methods
 
@@ -49,7 +32,44 @@ Everything you could need on the internet and more • Insanely Low Prices •
 | Best 1o1 clotching ww shipping site + method ( literally easy mon) | **€25.00** | Infinite |
 | Hidden site with every modern malware and anything related to pentest and cybersec ( always the latest) | **€18** | 10 |
 | UNP6TCHED frii nitro method | **€5.00** | Infinite |
+
 ---
+## Gambling
+
+| Product | P | Stock |
+|---------|------:|------:|
+| Stake 2step verification | **€2.00** | **15** |
+---
+
+## Gaming
+
+| Product | P | Stock |
+|---------|------:|------:|
+| Epic Games • 200–350 Games *(NFA)* | **€1.00** | **12** |
+| Epic Games • 350+ Games *(NFA)* | **€2.40** | **8** |
+| GTA V Premium *(FA)* | **€8.00** | **5** |
+| Minecraft *(FA)* | **€6.00** | **17** |
+| DayZ *(FA)* | **€2.00** | **39** |
+| EA FC 26 *(FA)* | **€9.00** | **2** |
+| CS2 Prime • 0–300 Hours *(FA)* | **€11.00** | **10** |
+| CS2 Prime • 1100–4000 Hours *(FA)* | **€25.00** | **10** |
+| 1k Robux | **€11** | **Any** |
+
+Note: 1k robux can be stacked
+---
+
+## Valo
+
+| Product | P | Stock |
+|---------|------:|------:|
+| EU - Level 1-20 Inventory: 1000VP-2000VP *(FA)* | **€12** | **38** |
+| EU - Level 40-100 Inventory: 3000VP-10000VP *(FA)* | **€22** | **4** |
+| EU - Level Level 50-200 Inventory: 5000VP - 20000VP *(FA)* | **€35** | **7** |
+| 3630 VP | **€32** | **infinite** |
+| 7200 VP | **€62** | **infinite** |
+| 10500 VP | **€89** | **infinite** |
+
+WARNING: If you buy VPs alone and not an account then you have to give your accs info.
 
 
 ## Minecraft
@@ -61,7 +81,7 @@ Everything you could need on the internet and more • Insanely Low Prices •
 ---
 
 
-## Fortnite
+## Fortnite acc
 
 | Product | P | Stock |
 |---------|------:|------:|
@@ -83,7 +103,9 @@ Everything you could need on the internet and more • Insanely Low Prices •
 | ChatGPT Plus *(FA)* | **€8.00** | **26** |
 | CapCut Pro • Lifetime *(FA)* | **€1.00** | **129** |
 | Duolingo Premium | **€0.80** | **152** |
-
+| HBO max *(NFA)* | **€1.00** | **100** |
+| NBA *(NFA)* | **€1.00** | **100** |
+| Spotify Premium *(FA)* | **€6.00** | **9** |
 ---
 
 ## Twitch 
