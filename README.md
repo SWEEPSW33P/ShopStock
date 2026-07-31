@@ -48,7 +48,7 @@ Everything you could need on the internet and more • Insanely Low Prices •
 | WW Za carts site (high quality stealthy and reliable) | **€15.00** | Infinite |
 | Best 1o1 clotching ww shipping site + method ( literally easy mon) | **€25.00** | Infinite |
 | Hidden site with every modern malware and anything related to pentest and cybersec ( always the latest) | **€18** | 10 |
-| UNP6TCHED nitro method | **€5.00** | Infinite |
+| UNP6TCHED frii nitro method | **€5.00** | Infinite |
 ---
 
 
